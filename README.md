@@ -5,6 +5,8 @@
 4th-year B.A. LL.B. (Hons), Dr. Harisingh Gour Vishwavidyalaya (Central University), Sagar
 · Para Legal Volunteer, DLSA Sagar · Google Campus Ambassador 2026
 
+**Interests for further study:** AI governance & public policy, law & technology, public-private partnerships (PPP), legal aid systems, consumer law, and public institutions
+
 ---
 
 ## What I'm building
